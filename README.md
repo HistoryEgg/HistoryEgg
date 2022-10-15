@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HistoryEgg
 - 👀 I’m interested in: History, Geography, Vexiology, Strategy Games
-- 🌱 I’m currently learning: Syntax for hoi4 modding
+- 🌱 I’m currently learning: help me
 - 💞️ I’m looking to collaborate on: Nothing Rn
 - 📫 How to Reach me: Discord
 
